@@ -1,1 +1,4 @@
-# history
+- 👋 Hi, I’m Carl
+- 👀 I’m interested in learning history
+- 🌱 I’m currently delving into the world of philosophy
+- 📫 How to reach me ... Don't
